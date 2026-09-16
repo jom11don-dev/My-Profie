@@ -18,5 +18,5 @@ My goal is to become a certified GRC Analyst and develop a strong foundation in 
 Outside of technology, I enjoy football, table tennis, and traveling. 🌍
 
 📫 How to Reach Me
-LinkedIn: [Add your LinkedIn profile here]
+LinkedIn: https://www.linkedin.com/in/donald-clarke-1b876335/
 Email: jom11domn@gmail.com
