@@ -73,4 +73,4 @@ Outside of technology, I enjoy:
 📫 How to Reach Me
 
 - 💼 LinkedIn: "Donald Clarke" (https://www.linkedin.com/in/donald-clarke-1b876335/)
-- 📧 Email: jom11domn@gmail.com
+- 📧 Email: jom11don@gmail.com
